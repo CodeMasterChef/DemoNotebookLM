@@ -1,1 +1,1 @@
-25FIT là công ty Việt Nam thành lập năm 2008
+25FIT là công ty Nhật Bản thành lập năm 2022
